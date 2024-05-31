@@ -1,0 +1,2 @@
+# ogrenme
+onur
